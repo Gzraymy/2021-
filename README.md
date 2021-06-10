@@ -6,3 +6,6 @@
 pc链接     https://www.leyu126.com/register/?i_code=4783321
 
 体育app       https://www.leyuvip15.app/?i_code=4783321
+
+
+水位观测：https://live.leisu.com/
