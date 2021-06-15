@@ -1,11 +1,11 @@
-# 2021-欧洲杯项目   https://htvip21.app:7443/entry/register/?i_code=9410662
+# 2021-欧洲杯项目   https://www.hthvip20.com:9443/entry/register/?i_code=9410662
 欧洲杯发财大法，赚钱，赌球，
 
-推荐线路        https://hthty33.app:7443/?i_code=9410662
+推荐线路       https://www.htvip10.app:9443/?i_code=9410662
       
-pc链接     https://hthty21.app:7443/register/?i_code=9410662
+pc链接    https://www.hth399.com:9443/register/?i_code=9410662
 
-体育app       https://htbet33.app:7443/?i_code=9410662
+体育app       https://www.hthty10.app:9443/?i_code=9410662
 
 
 水位观测：https://live.leisu.com/
